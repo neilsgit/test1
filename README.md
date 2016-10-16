@@ -1,4 +1,4 @@
 # test1
-Hi all. this is
+Loki: Hi all. this is Master Loki. Kneel before me.
 
 Hulk: Puny Gods!!
